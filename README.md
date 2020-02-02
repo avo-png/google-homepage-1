@@ -1,0 +1,2 @@
+bro. this will not be easy. you will most likely forget everything and have to relook at this again. hopefully with time, it will all be a bit easier and you will catch up. if not, this may not be the field for you. but i have confidence in you - in us - that we will get through this and that we will suceed and go beyond our expectations. don't worry or stress about what you can't do and remember all that you can. love you lots! <3
+From The Odin Project's [curriculum](http://www.theodinproject.com/courses/web-development-101/lessons/html-css)
